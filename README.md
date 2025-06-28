@@ -20,7 +20,7 @@
 ---
 
 ### 📫 How to reach me:
-- Email: [your.email@example.com]
+- Email: ansarkhanaptech1234@gmail.com
 - LinkedIn: [Your LinkedIn Profile]
 - Portfolio: [Your Portfolio URL]
 
